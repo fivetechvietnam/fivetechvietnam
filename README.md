@@ -2,7 +2,7 @@
 
 ## 🚀 Expert Software Engineer | Passionate Developer | Tech Enthusiast
 
-I'm an experienced software engineer from Vietnam with over 12 years of hands-on experience in the software development industry. I'm passionate about exploring new technologies, solving complex problems, and working on challenging projects that push the limits of my skills.
+I'm an experienced software engineer from Vietnam with over 15 years of hands-on experience in the software development industry. I'm passionate about exploring new technologies, solving complex problems, and working on challenging projects that push the limits of my skills.
 
 ### 🌟 About Me:
 - 💻 12+ years of experience in software development.
