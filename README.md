@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Nani
+# 👋 Hi, I'm 5Tech Solutions
 
 ## 🚀 Expert Software Engineer | Passionate Developer | Tech Enthusiast
 
